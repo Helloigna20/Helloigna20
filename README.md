@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Helloigna20
-- 👀 I’m interested in Learning everything jaha
-- 🌱 I’m currently learning C
+- 🌱 I’m currently studying in the informatorio
 - 📫 How to reach me: vvalentinojeda18@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I´m from Argentina
